@@ -1,0 +1,1 @@
+Sarcina de lucru ASC
